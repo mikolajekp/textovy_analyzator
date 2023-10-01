@@ -2,5 +2,3 @@
 
 Ahooooooooooooj
 
-
-ppokracujemesss
