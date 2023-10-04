@@ -1,4 +1,4 @@
 # textovy_analyzator
 
-Ahooooooooooooj
+test
 
